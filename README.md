@@ -11,12 +11,6 @@
 
 - [SEAN CARROLL - The Meaning of Life](https://www.youtube.com/watch?v=dLmY4ktOIOI)
 
-[Vi]
-- [Death] (https://www.facebook.com/permalink.php?story_fbid=pfbid02PNBUVzh1eLtwjZHufqiJxCRMzeRDRH6U42ktJ5b3r1jEV2JTAtP68neQA8wZMKnVl)
-
-
-[Quotes]
-
 ```
 Get out there!
 Exercise and eat healthy.
@@ -28,7 +22,4 @@ Sleep hard and play hard.
 Get up early go to bed early.
 Dont rely in meds, rely on positive thinking and healthy activities.
 Men - keep you testosterone up, it is your essence of youth.
-
-
-- Nick002
 ```
